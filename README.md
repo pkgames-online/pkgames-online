@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/95820dbc-2290-49a2-9910-0ecad1965af0)# PakGames: Your Gateway to Premium Online Gaming Bonuses
+# PakGames: Your Gateway to Premium Online Gaming Bonuses
 
 ![PakGames Banner](https://raw.githubusercontent.com/pkgames-online/pkgames-online/e90cda62d950365473a2f89a8ae0d23e581a8801/ChatGPT%20Image%20Jun%203%2C%202025%2C%2002_01_07%20PM.png)
 
